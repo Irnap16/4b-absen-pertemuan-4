@@ -18,4 +18,3 @@ Silahkan isi list nama di bawah ini apabila hadir dengan format berikut
 - [Irfan Maulana] | [2010631170013]
 - [Annisa Rahma Putri] | [2010631170055]
 - [Irna Purnahasanah] [2010631170014]
-jan di acc please, lagi tutor. maaf kang bud
